@@ -7,7 +7,7 @@
 ## [𝘼𝙂𝙊𝙍𝘼 𝙍𝙊𝘽𝙊 𝙂𝘼𝙉𝙂𝙎𝙏𝙀𝙍𝙎](t.me/Agoraswamy_Professor)
 
 <p align="center">
-  <img src="https://te.legra.ph/file/2cad74c2f0a59df589955.jpg">
+  <img src="https://te.legra.ph/file/8f38c2a68e7a4c2e3f6c9.jpg">
 </p>
 
 
